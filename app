@@ -1,0 +1,13 @@
+hi how are yo
+Linux
+    Root , Pswd: Sriram@123
+Git Hub
+    sam.reddy97@gmail.com      
+     usr name: Bommanisateesh     pswd: Sriramreddy@123 
+     
+
+
+Chef:
+
+       bommanisateeshreddy
+       Sriram@123   
